@@ -1,8 +1,5 @@
-# **Amateur Boxing**
+# **Michael Passade - System Engineer**
 
-How to Become an Amateur Boxer
+![alt text](https://media-exp2.licdn.com/dms/image/C4D03AQGjh54_p1KSaA/profile-displayphoto-shrink_200_200/0?e=1585180800&v=beta&t=n3l_1XearsbA5IoXUDw4D3L8reUvqvXpG38RdLaBDsI "headshot")
 
-1. Find a boxing gym
-<a href="https://www.instagram.com/p/By5jL_olf7O/?igshid=t76286fszi2r" height="180" border="10" /></a>
-
-2. 
+## **Work Experience**
