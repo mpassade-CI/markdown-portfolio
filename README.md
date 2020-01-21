@@ -13,4 +13,4 @@
 2. CCNA: Routing & Switching (2019)
 3. Comptia A+ (2018)
 
-
+### [LinkedIn](https://www.linkedin.com/in/michaelpassade/)
