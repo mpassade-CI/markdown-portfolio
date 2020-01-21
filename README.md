@@ -8,4 +8,9 @@
 * USMC - 9/2010 to 9/2015
 
 
+## **Education/Certificates**
+1. Bachelors of Technology - CUNY New York City College of Technology (2018)
+2. CCNA: Routing & Switching (2019)
+3. Comptia A+ (2018)
+
 
